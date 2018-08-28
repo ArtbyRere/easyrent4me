@@ -1,0 +1,2 @@
+# easyrent4me
+Look and  find housing or apartment for one time of 90$  will take application from tenet's do refference, background,work history check if passed will find ten properties for applicate to choose after applicants been approved by  landlord or  realitor once desicion is made applicants send in firstmonths  rent and deposit it gets send to  landlord applicants gets lease to to sign via email and then applicants can just move in we do all the  food work so applicants can just move in.
